@@ -1,1 +1,1 @@
-alot of bugs are present nor is the gamer finishable
+alot of bugs are present nor is the game finishable
